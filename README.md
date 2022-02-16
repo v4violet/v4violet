@@ -1,1 +1,1 @@
-i am no longer a developer
+i code crap and dont make it public so dont bother looking around
