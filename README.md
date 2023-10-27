@@ -1,1 +1,1 @@
-i code crap and dont make it public so dont bother looking around
+99% of my code is private so dont bother looking around
